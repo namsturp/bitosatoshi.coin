@@ -1,0 +1,1 @@
+# bitosatoshi.coin
